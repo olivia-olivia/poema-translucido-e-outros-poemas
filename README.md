@@ -1,4 +1,4 @@
-# Poemas de Vânia Ofélia
+# poema translúcido e outros poemas
 
 For author's rights and public license information in English, please see below.
 
